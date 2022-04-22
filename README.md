@@ -1,4 +1,4 @@
-### Hi there 👋 I'm [Jose Maria Hidalgo Garcia](https://jhidalgo3.medium.com/)
+### Hi there 👋 I'm [Jose Maria Hidalgo Garcia](https://www.linkedin.com/in/josemariahidalgogarcia/)
   
 ## Languages:
 
